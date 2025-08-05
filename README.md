@@ -2,7 +2,7 @@
 
 My name is not Valentin Kolesnikov. Ths is my precious nickname. I'm embarrassed to reveal my real name.  
 
-Howeever it doesn't make me a bad developer. I am a junior.  
+However it doesn't make me a bad developer. I am a junior.  
 
 My dream is to be a great developer. But I have a more cherished dream, but I can't to reveal it because the dream won't come true, hahaha.
 
